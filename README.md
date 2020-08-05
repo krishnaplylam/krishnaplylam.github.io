@@ -1,1 +1,0 @@
-# krishnaplylam.github.io
